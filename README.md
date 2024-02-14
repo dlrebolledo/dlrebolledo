@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Dave
-- 👀 I’m interested in collaborating professional people
+- 👀 I’m interested in collaborating professional people and people who has a substance.
 - 🌱 I’m currently learning to counsel, inspire and motivate patients
 - 💞️ I’m looking to collaborate on March 1, 2024
 - 📫 How to reach me thru my email at dantedevonrebolledo@gmail.com
